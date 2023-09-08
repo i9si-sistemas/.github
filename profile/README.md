@@ -7,5 +7,3 @@
 - 🛒 Em seu comércio?
 
 ### Entre em contato através do número: ☎️ (81) 3722-0634
-
-[Clique aqui para conhecer melhor nossa empresa](i9sisistemas.com.br)
